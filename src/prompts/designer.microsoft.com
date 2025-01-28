@@ -1,0 +1,1 @@
+uma mesa com pessoas jogando jogos de tabuleiro atuais, de estratégia, colaboração, com algumas cores, num ambiente moderno , demonstrando alegria, e com algumas caixas de jogos ao redor para poderem utilizar também. Sem anúncios e frases na imagem.
